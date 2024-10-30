@@ -12,6 +12,5 @@ Port scan (V1, v2)
 Doxx template
 DDoS Site/IP
 ## DOWNLOAD THE BEST MULTITOOL FOR UR HACKER STUFF
-Download RIGHT NOW and do anything without getting caught.
+Download if u want lol idk
 
-## MulInk - Best for you, king.
